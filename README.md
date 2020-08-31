@@ -1,4 +1,4 @@
-### im a memer
+### im a memer who has no idea what they're doing
 
 <!--
 **lookink54/lookink54** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
